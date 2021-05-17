@@ -1,1 +1,1 @@
-[Naiara Alvaro GitHub profile] (https://github.com/Naiara-Alvaro)
+[Naiara Alvaro GitHub profile](https://github.com/Naiara-Alvaro)
